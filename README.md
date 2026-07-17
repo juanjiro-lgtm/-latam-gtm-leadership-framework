@@ -456,6 +456,8 @@ Juan Manuel Jiménez
 Technology Sales and GTM Leader
 Latin America
 
-LinkedIn: Add your LinkedIn profile URL here
+LinkedIn: https://co.linkedin.com/in/juanjiro
 Location: Mexico City, Mexico
+WhatsApp: +527201039880
+email: juanjiro@gmail.com
 
